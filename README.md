@@ -1,7 +1,7 @@
 
 # Kumpulan Script Dark-FB Recode yang Ter-Tusbol
 
-## Follow Instagram: @__notnanta 
+## Follow Instagram: @erlbgsy
 ## My Team: Black Coder Crush, TERMUXID3
 ## Fucek buat lo yg suka ngaku "Decompile by Kontol!1!1!"
 
